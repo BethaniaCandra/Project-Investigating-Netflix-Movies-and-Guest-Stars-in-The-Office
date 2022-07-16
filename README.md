@@ -12,3 +12,11 @@ Some project tasks to solve as follows:
 8. Marking non-feature films
 9. Plotting with color
 10. Answer a question
+
+Feel free to discuss and connect with me via Linkedin https://www.linkedin.com/in/bethania-candra 
+
+Thank you and God Bless!
+
+Regards,
+
+Bethania Candra
